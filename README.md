@@ -21,7 +21,7 @@ redbool's information.
     <p>born on 11 March 2010</p>
    
     <p>He is an musician & an artist from the area called Makhanisi. 
-        He starterd school at Makhana Primary School & now he is doing grade 10 at Namaneni High School.
+        He started school at Makhana Primary School & now he is doing grade 10 at Namaneni High School.
         please support him on his music, he is so talented.     
     </p>
     click the link to see his music
